@@ -7,7 +7,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking forward to completing The UoB Coding Bootcamp and entering the world of professional developing 
 - 🥅 2022 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to draw and play guitar / drums
+- ⚡ Fun fact: I love to collect whisky and play video games 
 
 ### Connect with me:
 
